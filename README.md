@@ -1,1 +1,0 @@
-# hukayuki.github.rokkyou
